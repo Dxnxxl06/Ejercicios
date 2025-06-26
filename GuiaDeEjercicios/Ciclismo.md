@@ -8,3 +8,6 @@ Ayuda al cardio y tambien a hacer pierna pa q se ponga bien mamichula
 
 ## Instrucciones
 Tener cicla, montarla y pedalear
+
+## Consejos
+No ir a acapulco en la primera ruta
