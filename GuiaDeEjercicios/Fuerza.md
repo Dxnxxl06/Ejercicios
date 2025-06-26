@@ -9,3 +9,6 @@ Ayuda a desarrollar nuestra area pectoral y a tener boobs mas grandes que las de
 
 ## Instrucciones
 Lo primero es estar en un gym, luego iremos a una maquina que se llama press de banca alli cargaremos la barran con peso y despues subimos y bajamos la barra para ejercitarnos
+
+## Consejos 
+Lo que debemos cuidar es de no sobrecargar la maquina, para que no nos muramo en el intento 
