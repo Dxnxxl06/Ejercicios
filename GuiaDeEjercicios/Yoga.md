@@ -8,3 +8,6 @@ VAs a llegar sabiendo respirar a los 60
 
 # Instrucciones 
 Brandom te explica
+
+# CONSEJOS
+No lo hagas si tienes menos de 40
