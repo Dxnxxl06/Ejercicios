@@ -8,3 +8,6 @@ No se ahoga en el mar
 
 ## Instrucciones
 Nadar
+
+## COnsejos
+No se nadar
