@@ -6,3 +6,6 @@ si nos excedemos podemos jodelnos
 
 ## Beneficios del ejercicio
 Ayuda a desarrollar nuestra area pectoral y a tener boobs mas grandes que las de nuestra novia-esposa-pelito-lover-mama
+
+## Instrucciones
+Lo primero es estar en un gym, luego iremos a una maquina que se llama press de banca alli cargaremos la barran con peso y despues subimos y bajamos la barra para ejercitarnos
